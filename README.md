@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **chhetrybhoomi07@gmail.com**
 
-- ⚡ Fun fact **e till late**
+- ⚡ Fun fact **to be or not to be**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
