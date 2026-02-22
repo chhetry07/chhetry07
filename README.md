@@ -6,7 +6,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/chhetry07](https://github.com/chhetry07)
 
-- 💬 Ask me about **html,css,JS,c**
+- 💬 Ask me about **html,css,JS,Java**
 
 - 📫 How to reach me **chhetrybhoomi07@gmail.com**
 
